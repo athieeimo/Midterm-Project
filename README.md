@@ -10,37 +10,6 @@ So I am currently a freshman here at Mizzou. I started off as Business major whi
 
 [Click this link to learn about athieeis favorite hobbies](favoritehobbies.md)
 
-#### Favorite Hobbies:
-
-- Doing and taking care of my hair 
-- Listening to Podcasts and Interviews 
-- Taking IG pictures 
-- City life and walks 
-- Journaling 
-- Hanging out with family and friends 
-- Youtube is my favrorite app 
-- Work at the mizzou store 
-- Bible Study on Tuesdays 
-
-add picture or link here 
-
-
-
-
-
-#### Favorite Music:
-1. Drake
-2. Jcole
-3. Sza
-4. NBA Youngboy
-5. Brent Faiyaz
-
-##### Genres
-1. RAP
-2. AFROBEATS 
-3. R&B
-4. ALTERNATIVE ROCK
-5. Pop
 
 #### Family Life
 - 3 siblings 
