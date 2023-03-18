@@ -12,21 +12,5 @@ So I am currently a freshman here at Mizzou. I started off as Business major whi
 
 
 
-#### Favorite Places to go:
-- AMC movie theatre 
-- WOF amusement park
-- Trails
-- Chicago is my favorite state I’ve visited so far 
-- My cousins house 
- 
 
-#### Future Goals :
-- Obtain a sonography degree
-- Move to a new state (Chicago or Virginia)
-- Travel as much as I can
-- Start a business
-- Invest 
-- Go to Concerts
-- Make more family & friend Memories
-- Closer to God
 
