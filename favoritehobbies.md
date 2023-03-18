@@ -9,3 +9,4 @@
 - Youtube is my favrorite app 
 - Work at the mizzou store 
 - Bible Study on Tuesdays 
+[Click this link to learn about athieeis favorite hobbies](favoritemusic.md)
