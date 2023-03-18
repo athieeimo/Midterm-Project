@@ -11,11 +11,6 @@ So I am currently a freshman here at Mizzou. I started off as Business major whi
 [Click this link to learn about athieeis favorite hobbies](favoritehobbies.md)
 
 
-#### Family Life
-- 3 siblings 
-- 1 Mom 
-- 1 Dad 
-- I currently reside with Mom and Sister
 
 #### Favorite Places to go:
 - AMC movie theatre 
