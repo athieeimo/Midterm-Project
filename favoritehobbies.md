@@ -4,9 +4,9 @@
 - Listening to Podcasts and Interviews 
 - favorite podcasts: 
 
-  [1.](https://www.youtube.com/@sdwtspodcast)
+  [Angie Martinez.](https://www.youtube.com/@sdwtspodcast)
   
-  [2.](https://www.youtube.com/@AngieMartinez)
+  [SDWSP.](https://www.youtube.com/@AngieMartinez)
 - Taking IG pictures 
   [check out my ig](https://www.instagram.com/athieei.ovo/)
 - City life and walks 
